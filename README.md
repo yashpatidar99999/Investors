@@ -1,1 +1,1 @@
-# Masai-Investors
+# Investors
